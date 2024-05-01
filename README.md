@@ -1,0 +1,7 @@
+- 👋 Hi, we're @ballzzzzz-studios
+- 👀 We're interested in ...
+- 🌱 We're currently learning ...
+- 💞️ We're looking for more coders for our team.
+- 📫 How to reach us: [Email](mailto:ballzzzzz.studios@gmail.com)
+- 😄 Pronouns: Them/All
+- ⚡ Fun fact: We're looking for more team members.
